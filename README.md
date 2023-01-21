@@ -1,0 +1,2 @@
+# WzorzecObserwator
+TURAS TYKLO PO ZMIENIAJ ZEBY NIE BYLO !!11!!11!
